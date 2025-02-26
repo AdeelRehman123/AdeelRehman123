@@ -1,5 +1,5 @@
 # 💫 About Me:
-porn hub=
+I am adeel a pro ff player and a inspiring CS student  FAST-CS'28
 
 
 # 💻 Tech Stack:
